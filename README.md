@@ -1,0 +1,1 @@
+# DSN-FREE-AI-Classes-In-Every-City-Hackathon-2022
